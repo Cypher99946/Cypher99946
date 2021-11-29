@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cypher99946
+JJ- 👋 Hi, I’m @Cypher99946
 - 👀 I’m interested in coding and hacking
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on my learning journey
